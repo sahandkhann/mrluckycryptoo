@@ -1,0 +1,2 @@
+# mrluckycryptoo
+trade
